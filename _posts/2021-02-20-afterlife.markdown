@@ -13,7 +13,7 @@ categories: story short-story fiction science-fiction fantasy experimental
 
 **Estimated reading time**: 12 minutes (2300 words)
 
-**Note**: This is an experimental story by an amateur writer. Its quality will certainly be lower than any professionally written stories. Feedback is welcome :)
+**Note**: This is an experimental story by an amateur writer. Its quality will certainly be lower than any professionally written story. Feedback is welcome :)
 
 ---
 
@@ -37,11 +37,11 @@ _“You've reached the end, only to meet a new beginning...”_
 
 Ben grew frustrated at how foreign everything seemed. There was a voice trying to make contact with him, yet the voice had no features at all. There wasn't even a gender associated with the voice. There were only words floating around in his mind, if there even was a mind in the first place.
 
-“WHO THE FUCK ARE YOU?!” Ben tried to yell into the nothingness, but there was again no mouth who spoke the words, and no sound filling the omnipresent nothingness.
+“Who the hell are you?!” Ben tried to yell into the nothingness, but there was again no mouth who spoke the words, and no sound filling the omnipresent nothingness.
 
-_“I'm a merely a mental projection, meant to help you construct the next destination of your existence.”_
+_“I'm merely a mental projection, meant to help you construct the next destination of your existence.”_
 
-“YOU ARE FREAKING ME OUT!” Ben yelled, or thought, or whatever. His mind was starting to go into overdrive at this point. After falling off a cliff and meeting certain death, the senseless nothingness that consumed him now was too absurd. Combined with a lack of physical experience, the whole event was truly terrifying. Normally, if he'd be confronted by a stranger, there was always the option to fight or flee. However, in the present moment, there was no such escape.
+“You are freaking me out!” Ben yelled, or thought, or whatever. His mind was starting to go into overdrive at this point. After falling off a cliff and meeting certain death, the senseless nothingness that consumed him now was too absurd. Combined with a lack of physical experience, the whole event was truly terrifying. Normally, if he'd be confronted by a stranger, there was always the option to fight or flee. However, in the present moment, there was no such escape.
 
 Ben had to collect his thoughts, instead of aimlessly screaming into nothingness. He tried to recall all the events that brought him here. He'd been hiking in Norway, all by himself, to calm down after heightened tensions between him and Emma, who was now his ex-wife. A momentary lapse of judgment was all it took for the trip to reach a sudden end.
 
@@ -99,13 +99,13 @@ _“I can very well make that happen. Would you like me to?”_
 
 “No, no, no,” Ben said in a frenzy. “I mean, it does sound nice, but for eternity... I would still inhabit my human mind, right? How would it respond to such a scenario of endless pleasure?”
 
-_“I only see minds as they are connected to me, I don't see the concequences of their decisions.”_
+_“I only see minds as they are connected to me, I don't see the consequences of their decisions.”_
 
 Ben tried to imagine the scenario for himself, a life devoid of pain. At face value, it seemed like a good thing. Yet, if happiness was the new normal, would it have any meaning at all? If there were no challenges to overcome, then perhaps there would be no sense in doing anything.
 
 Ben got the chills at the thought of it. Even worse was the readiness at which the entity was willing to condemn him to such a reality. In fact, any afterlife Ben came up with seemed unpleasant when experienced eternally. Perhaps true death wasn't that bad of an option after all...
 
-Ben felt he needed to take his time over this decision, but the eeriness of his senseless self was slowly driving him to desparation. Sight, noise, and warmth were all relics of a distant past. But however much he longed to have those senses back, he felt sickened by the thought that there would be no escape.
+Ben felt he needed to take his time over this decision, but the eeriness of his senseless self was slowly driving him to desperation. Sight, noise, and warmth were all relics of a distant past. But however much he longed to have those senses back, he felt sickened by the thought that there would be no escape.
 
 “Why are you giving me this ultimatum?” Ben asked. “Why must a desire to live be eternal?”
 
@@ -119,11 +119,11 @@ _“It will be whatever you want it to be at the time of creation. Everyone coul
 
 “Why can I judge over the mortality of everyone on earth?” asked Ben, getting increasingly anxious over the potential implications of his decision.
 
-_“Your afterlife is up for your creation. Places like earth can be used as a reference point, but became otherwise irrelevant from the moment you left them. The changes you make to earth are only applied in your afterlife, but won't hold any implications for the place you called 'earth' before.”_
+_“Your afterlife is up for your creation. Places like earth can be used as a reference point but became otherwise irrelevant from the moment you left them. The changes you make to earth are only applied in your afterlife, but won't hold any implications for the place you called 'earth' before.”_
 
 “So, I wouldn't be able to die? Period?”
 
-_“The only true limitation of your afterlife is that your conciousness will be eternal. You can still leave your body after your natural lifespan, but you must define what happens afterwards.”_
+_“The only true limitation of your afterlife is that your consciousness will be eternal. You can still leave your body after your natural lifespan, but you must define what happens afterward.”_
 
 “Can I choose to be connected to an entity like you again, getting yet another choice about the contents of my afterlife?” Ben asked with a spark of hope. “Except I wouldn't be able to choose true death, of course.”
 
@@ -135,7 +135,7 @@ _“Then so it will be.”_
 
 As the last words were spoken by the entity, everything started to shift around Ben. At once, all his senses returned. Sounds, colors, and feelings all made their entrance at once.
 
-Then, as his eyes adjusted to the orchestra of light in front of him, the most breathtaking sight revealed itself. The sun was setting at the horizon, slowly being swallowed by the sea. Combined with the tingling sensation of the wind, it alliviated all his senses.
+Then, as his eyes adjusted to the orchestra of light in front of him, the most breathtaking sight revealed itself. The sun was setting at the horizon, slowly being swallowed by the sea. Combined with the tingling sensation of the wind, it alleviated all his senses.
 
 However, in the transition to his all-new world, Ben also noticed something else. The former lucidity of his disembodied self had faded, replaced by an alcohol-induced haziness. It felt good and bad at once. Good that his feelings had returned, but bad that he was back at being his untrustworthy self.
 
