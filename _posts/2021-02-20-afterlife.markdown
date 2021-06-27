@@ -2,7 +2,7 @@
 layout: post
 title:  "Afterlife: A short story"
 date:   2021-02-20 20:02:48 +0100
-categories: story short-story fiction science-fiction fantasy experimental
+categories: story
 ---
 
 **Synopsis**: After his accidental death, Ben finds himself faced with a foreign entity. The entity presents him with a dilemma between eternal life and true death.
