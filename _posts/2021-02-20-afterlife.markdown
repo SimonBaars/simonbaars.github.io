@@ -13,7 +13,7 @@ categories: story short-story fiction science-fiction fantasy experimental
 
 **Estimated reading time**: 12 minutes (2300 words)
 
-**Note**: This is an experimental story by an amateur writer. Its quality will certainly be lower than any professionally written stories.
+**Note**: This is an experimental story by an amateur writer. Its quality will certainly be lower than any professionally written stories. Feedback is welcome :)
 
 ---
 
