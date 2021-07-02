@@ -5,4 +5,6 @@
 layout: home
 ---
 
-Welcome! I'm Simon, and I like to create things. I created this website to share some of my creations.
+Welcome! I'm Simon. I'm a tech-person (software engineer). Sometimes I have to write things off my mind, which is why I created this blog :)
+
+I'm always happy to receive feedback on my writing. In the footer of this page you can find my LinkedIn to contact me.
